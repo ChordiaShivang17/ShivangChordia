@@ -13,7 +13,7 @@
 
 ## 📫 How to reach me...
 - Email: schordia1092@conestogac.on.ca
-- LinkedIn: [Shivang Chordia](https://www.linkedin.com/in/shivangchordia/)
+- LinkedIn: [Shivang Chordia](https://www.linkedin.com/in/iamshivang/)
 - Website: [shivangchordia.me](https://shivangchordia.me)
 
 ## 😄 Pronouns: ...
